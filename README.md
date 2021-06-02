@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dengwentian
+- 👀 I’m interested in finance、money.
+- 🌱 I’m currently learning I am studying finance
+- 💞️ I am looking for advice from an expert.
+- 📫 How to reach me .My email address is 994551530roomqq.com.
